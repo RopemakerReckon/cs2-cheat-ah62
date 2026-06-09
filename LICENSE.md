@@ -1,4 +1,4 @@
-
+Seguro CS traps trocador de skins é o melhor CS traps trocador de skins com mira automática e teletransporte. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
